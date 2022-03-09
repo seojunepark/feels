@@ -1,4 +1,3 @@
-#The Feels
 I know, love, it is such a funny thing
 A mystery allure
 Gotta get to know you more
